@@ -32,6 +32,7 @@
 11. [NAWIJAM I SMAŻE (DRUM N BASS)](https://www.youtube.com/watch?v=flp3gzwUfDI) — ZIELAK JUNIOR (0:02:27)
 12. [Kaz Bałagane ALE to DRUM AND BASS (MOORAH x UNLUCKY MVRTINO REMIX)](https://www.youtube.com/watch?v=dEZb3ZsOLoc) — MOORAH (0:02:20)
 13. [Mc Graba  - Wsparcie prod. Excel  ( Drum and Bass )](https://www.youtube.com/watch?v=ajwr4QF5bDw) — Drum And Bass Graba (0:04:13)
+14. [Krzysztof Krawczyk x Document One - Mój Przyjacielu vs Bad Intentions [69Beats Live Blend]](https://www.youtube.com/watch?v=gfeVtDo9Vdg) — 69Beats (0:04:55)
 
 ## Party dnb
 
@@ -64,6 +65,7 @@
 27. [Metrik - Parallel (ft. Grafix)](https://www.youtube.com/watch?v=KWEzYhhSJ2w) — UKF Drum & Bass (0:04:31)
 28. [Culture Shock - Bunker](https://www.youtube.com/watch?v=DRzPoYYaSM0) — UKF Drum & Bass (0:04:42)
 29. [MK & Dom Dolla - Rhyme Dust (Dimension Remix)](https://www.youtube.com/watch?v=m4JxFggaspE) — UKF Drum & Bass (0:03:47)
+30. [Dimension - DJ Turn It Up (Official Video)](https://www.youtube.com/watch?v=qj-1nprw12E) — Dimension (0:02:49)
 
 ## Floor dnb
 
@@ -88,6 +90,8 @@
 19. [Wilkinson - Keep Dancing](https://www.youtube.com/watch?v=GY434tuPrZk) — UKF Drum & Bass (0:03:41)
 20. [Metrik - Parallel (ft. Grafix)](https://www.youtube.com/watch?v=KWEzYhhSJ2w) — UKF Drum & Bass (0:04:31)
 21. [Culture Shock - Bunker](https://www.youtube.com/watch?v=DRzPoYYaSM0) — UKF Drum & Bass (0:04:42)
+22. [Dimension - DJ Turn It Up (Official Video)](https://www.youtube.com/watch?v=qj-1nprw12E) — Dimension (0:02:49)
+23. [Sub Focus, Fireboy DML, Irah - Original Don (Official Music Video)](https://www.youtube.com/watch?v=6-cUGj05OAc) — Sub Focus (0:02:56)
 
 ## Ballads
 
@@ -453,7 +457,7 @@
 2. [[Deleted video]](https://www.youtube.com/watch?v=EGDvVCzM7C0) — 
 3. [[Deleted video]](https://www.youtube.com/watch?v=FC0C8oXqCPE) — 
 4. [GOUZA - DOLAR 💸 (Beat by Lbtz)](https://www.youtube.com/watch?v=4_eczo3jY6s) — OFFING LVM (0:02:08)
-5. [Rzabka - Wściekłe Pixiarze prod. by @TSKSOMD [video]](https://www.youtube.com/watch?v=oUGojJPQ6cg) — Szelest Records (0:02:55)
+5. [[Private video]](https://www.youtube.com/watch?v=oUGojJPQ6cg) — 
 
 ## Marathon
 
@@ -564,7 +568,7 @@
 105. [Mortal Kombat Theme (Still Frozen Drum & Bass Remix)](https://www.youtube.com/watch?v=SGg-lIJXe2U) — StillFrozenDNB (0:03:13)
 106. [Hybrid Minds - Halcyon (feat. Grimm)](https://www.youtube.com/watch?v=S7de4JJVV8A) — MrSuicideSheep (0:05:42)
 107. [Neutralize - Shining Through The Light Ft. Emily Underhill](https://www.youtube.com/watch?v=5MlLza1LcA4) — NeutralizeOfficial (0:05:01)
-108. [Ian Carey Project - Shotcaller (Matrix and Futurebound remix)](https://www.youtube.com/watch?v=8Mtl3foWU8Q) — NaylzDnB (0:04:18)
+108. [Ian Carey Project - Shotcaller (Matrix and Futurebound remix)](https://www.youtube.com/watch?v=8Mtl3foWU8Q) — Stelefant (0:04:18)
 109. [Guru Groove Foundation - Golden Love (Mr. Frenkie Remix)](https://www.youtube.com/watch?v=EQroAon6qbQ) — Mr. Frenkie (0:03:29)
 110. [[Deleted video]](https://www.youtube.com/watch?v=IKFuaExJ-EI) — 
 111. [Smooth - For Good](https://www.youtube.com/watch?v=PeudLhS3Wp8) — Liquicity (0:04:34)
@@ -610,7 +614,7 @@
 4. [The Chainsmokers - This Feeling (Lyrics) ft. Kelsea Ballerini](https://www.youtube.com/watch?v=xVSKsMq-JOE) — WaveMusic (0:03:19)
 5. [Martin Jensen x James Arthur - Nobody (Lyrics)](https://www.youtube.com/watch?v=kBxZu42sOMc) — WaveMusic (0:03:32)
 6. [Feel – LiQWYD (No Copyright Music)](https://www.youtube.com/watch?v=iKYGTTaj9oo) — Audio Library (0:03:31)
-7. [Cold Sun – Del (No Copyright Music)](https://www.youtube.com/watch?v=3V1VwEKFe0g) — Audio Library (0:03:28)
+7. [[Private video]](https://www.youtube.com/watch?v=3V1VwEKFe0g) — 
 8. [Porter Robinson & Madeon - Shelter (Official Audio)](https://www.youtube.com/watch?v=HQnC1UHBvWA) — Madeon (0:03:38)
 9. [The Midnight - Sunset (Lyrics video)](https://www.youtube.com/watch?v=rEzSMLEJWx8) — Ghostkeeper (0:05:26)
 
@@ -622,6 +626,7 @@
 4. [Best Liquid Drum and Bass Mix 2018](https://www.youtube.com/watch?v=RpmXe1wXdbw) — Frisson (1:14:04)
 5. [Best Female Vocal Dubstep Mix 1 【1 Hour】【1080p HD】](https://www.youtube.com/watch?v=9lwdtZEiRJE) — Bonto (1:01:49)
 6. [Graba UKF Mix 2022r](https://www.youtube.com/watch?v=XssgpTFdIcg) — Drum And Bass Graba (0:41:25)
+7. [Nu Metal Legends Vol. 4 – Korn, System of Down, Slipknot, Limp Bizkit Inspired (2000s Rock AI Remix)](https://www.youtube.com/watch?v=k-8OaaEAraw) — Metaflow and Mixology (0:54:14)
 
 ## Hardbass
 
@@ -772,12 +777,12 @@
 5. [Eminem - When I'm Gone Lyrics](https://www.youtube.com/watch?v=kguRNaAO8oc) — TheMeanKittylover2 (0:04:43)
 6. [twenty one pilots: Car Radio [OFFICIAL VIDEO]](https://www.youtube.com/watch?v=92XVwY54h5k) — Fueled By Ramen and twenty one pilots (0:04:41)
 7. [The Qemists - Jungle (feat. Hacktivist)](https://www.youtube.com/watch?v=QqBe-jS-XCk) — theqemistsofficial (0:03:40)
-8. [Remember The Name (Official Video) - Fort Minor](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
+8. [Remember The Name (Official Video) - Fort Minor [4K]](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
 9. [Afromental - Mental House (Official Music Video) [HD]](https://www.youtube.com/watch?v=SdYnv-lYU1Q) — Afromental Official YouTube Channel (0:05:39)
 10. [Roy Jones Jr. - Can't Be Touched (feat Mr. Magic & Trouble)](https://www.youtube.com/watch?v=GoCOg8ZzUfg) — RapClassicsTV (0:03:40)
 11. [NEFFEX - Careless 💔 [Copyright Free] No.19](https://www.youtube.com/watch?v=Z6L4u2i97Rw) — NEFFEX (0:04:57)
 12. [Beast (Southpaw Remix) - Rob Bailey & The Hustle Standard ft. Busta Rhymes, KXNG Crooked & Tech N9ne](https://www.youtube.com/watch?v=-2uU6OJV65w) — Aadhil Rizwan (0:04:40)
-13. [[Private video]](https://www.youtube.com/watch?v=cCvLSrg55V8) — 
+13. [Rob Bailey & The Hustle Standard - We're Doing It [SUB-ESPAÑOL] [LYRICS]](https://www.youtube.com/watch?v=cCvLSrg55V8) — Bruno (0:05:05)
 14. [Eminem - Space Bound](https://www.youtube.com/watch?v=JByDbPn6A1o) — EminemMusic (0:04:25)
 15. [Manafest feat. Koie from Crossfaith - No Plan B (Respecta.net).mkv](https://www.youtube.com/watch?v=i1_sJHL3YwQ) — igor (0:03:33)
 16. [Rob Bailey & The Hustle Standard :: HAYMAKER :: Lyric Video](https://www.youtube.com/watch?v=ai3XE7nmRpo) — The Hustle Standard (0:04:40)
@@ -958,6 +963,9 @@
 122. [CHRYSTAL - THE DAYS  (NOTION REMIX)](https://www.youtube.com/watch?v=t-knFuqQdGc) — NOTION (0:03:54)
 123. [Creeds - Push Up (Lyrics) | Tiktok](https://www.youtube.com/watch?v=mNrzmpA8JU4) — The Vibe Guide (0:02:19)
 124. [[Private video]](https://www.youtube.com/watch?v=TdwWl_PPlNs) — 
+125. [Marty - Secret Enemy (Na Na Na)](https://www.youtube.com/watch?v=8z1r4O6m47I) — DJ MARTY (0:03:10)
+126. [Dimension - DJ Turn It Up (Official Video)](https://www.youtube.com/watch?v=qj-1nprw12E) — Dimension (0:02:49)
+127. [Better Off Alone x Clarity - Agartha Remix](https://www.youtube.com/watch?v=wnYrbFWLSCo) — YourLocalSchizo (0:03:30)
 
 ## Sensual/Romantic
 
@@ -1253,6 +1261,7 @@
 57. [M (Above & Beyond Remix)](https://www.youtube.com/watch?v=jXdLFBLgh3s) — ayu (0:04:19)
 58. [Ummet Ozcan - Xanadu (Mongolian Techno)](https://www.youtube.com/watch?v=9uMtnH7cABg) — Ummet Ozcan (0:03:44)
 59. [W&W - OIIA OIIA (Spinning Cat)](https://www.youtube.com/watch?v=IxX_QHay02M) — W&W (0:02:15)
+60. [Kato-Turn The Lights Off - Pulse of Trance (Pulse Remix)](https://www.youtube.com/watch?v=Dp9KqPI1i9c) — Pulse of Trance (0:05:07)
 
 ## Dubstep
 
@@ -1340,6 +1349,7 @@
 82. [RAY VOLPE - CRASH OUT (Official Visualizer + Lyric Video)](https://www.youtube.com/watch?v=O8y0wNFv9nI) — RAY VOLPE (0:03:35)
 83. [Birdy - Skinny Love (Vanic Remix)](https://www.youtube.com/watch?v=37DIzz5Q2bM) — AirwaveMusicTV (0:05:09)
 84. [Rude Lard - Spooky](https://www.youtube.com/watch?v=cR0HwQBpFLA) — Rude Lard (0:04:04)
+85. [Excision & Sullivan King - Wake Up](https://www.youtube.com/watch?v=Pq0ejJ2afEs) — DubstepGutter (0:05:44)
 
 ## Funny
 
@@ -1418,7 +1428,7 @@
 12. [SEMARGL - Credo Revolution (Zardonic Remix)](https://www.youtube.com/watch?v=uSjaEHoi1_c) — Semargl Band (0:04:26)
 13. [THE UNGUIDED - Phoenix Down (Zardonic Remix)](https://www.youtube.com/watch?v=3SunWtjn9_I) — TheUnguidedTV (0:04:07)
 14. [The Qemists - Jungle (feat. Hacktivist)](https://www.youtube.com/watch?v=QqBe-jS-XCk) — theqemistsofficial (0:03:40)
-15. [Remember The Name (Official Video) - Fort Minor](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
+15. [Remember The Name (Official Video) - Fort Minor [4K]](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
 16. [Good Charlotte - The River ft. M. Shadows, Synyster Gates (Official Music Video)](https://www.youtube.com/watch?v=yVm8PjWCvLg) — goodcharlotte (0:03:16)
 17. [From Ashes To New - Breaking Now (Acoustic)](https://www.youtube.com/watch?v=FK-s5kcI3GM) — Louder Noise (0:03:27)
 18. [Infected Mushroom - Heavyweight](https://www.youtube.com/watch?v=h4YvkZeLrjs) — Cres De Leon (0:08:46)
@@ -1474,7 +1484,7 @@
 68. [EMINEM - Lose Yourself (Cover by Sharks In Your Mouth) Metalcore](https://www.youtube.com/watch?v=gMKC7mPUkYQ) — Sharks In Your Mouth (0:05:17)
 69. [haste the day- long way down](https://www.youtube.com/watch?v=NarTdRun_Z8) — water5477 (0:03:15)
 70. [Nomy - Cocaine / lyrics](https://www.youtube.com/watch?v=T7DSFDsB2aw) — moplip (0:04:07)
-71. [Gotta Go Fast [FULL ALBUM] - Sonic the Hedgehog COVER MUSIC ALBUM by NateWantsToBattle](https://www.youtube.com/watch?v=tJjURMVgk7s) — Give Heart Records (0:38:09)
+71. [Gotta Go Fast [FULL ALBUM] - Sonic the Hedgehog COVER MUSIC ALBUM by NateWantsToBattle](https://www.youtube.com/watch?v=tJjURMVgk7s) — Give Heart Records and NateWantsToBattle (0:38:09)
 72. [Hollywood Undead - Comin' Thru The Stereo feat. Hyro The Hero (Undead House Party)](https://www.youtube.com/watch?v=QWbr0XdHyko) — Hollywood Undead (0:03:33)
 73. [Evil Ghost](https://www.youtube.com/watch?v=5l0yGdENUUE) — Endgame (0:03:29)
 74. [[Private video]](https://www.youtube.com/watch?v=AcxAG4VOhig) — 
@@ -1510,7 +1520,7 @@
 104. [Skindred - Nobody](https://www.youtube.com/watch?v=lnY4dYpDqUg) — Jamie Lee (0:03:18)
 105. [BLOODYWOOD - NU DELHI (Official Video)](https://www.youtube.com/watch?v=A3C9NwGKgq4) — Bloodywood (0:04:25)
 106. [Mike's Dead - WAR (Lyric Video)](https://www.youtube.com/watch?v=mIEOu40nfPI) — Mike's Dead (0:02:46)
-107. [Middle Finger – Limp Bizkit Inspired AI  Remix Album [Nu Metal, Rap Rock, 2000s] 🤘🎤](https://www.youtube.com/watch?v=n61Lycw-OuY) — Metaflow and 2 more (0:58:54)
+107. [Middle Finger – Limp Bizkit Inspired AI  Remix Album [Nu Metal, Rap Rock, 2000s] 🤘🎤](https://www.youtube.com/watch?v=n61Lycw-OuY) — Metaflow and 3 more (0:58:54)
 
 ## Chill
 
@@ -1638,7 +1648,7 @@
 122. [Dabin - Bloom (feat. Dia Frampton)](https://www.youtube.com/watch?v=oWidxg_YCIU) — MrSuicideSheep (0:04:07)
 123. [Utah Jazz - Love Everlasting - Spearhead Records](https://www.youtube.com/watch?v=b8FqCUnx_6s) — Spearhead Records (0:03:55)
 124. [Lightness – Nomyn (No Copyright Music)](https://www.youtube.com/watch?v=yTIFnD_iAyM) — Audio Library (0:03:23)
-125. [Cold Sun – Del (No Copyright Music)](https://www.youtube.com/watch?v=3V1VwEKFe0g) — Audio Library (0:03:28)
+125. [[Private video]](https://www.youtube.com/watch?v=3V1VwEKFe0g) — 
 126. [Covex ft. Chloe Tang - Vertigo (AK Remix)](https://www.youtube.com/watch?v=6JdZRWon7KY) — AK (0:04:08)
 127. [Silence Groove - All Music](https://www.youtube.com/watch?v=DSBFrBkPEJc) — Liquiddnbftw (0:05:21)
 128. [Nelver - Hourglass](https://www.youtube.com/watch?v=HFlxkizTcIs) — Ledge Sounds (0:05:16)
@@ -1689,7 +1699,7 @@
 173. [ILLENIUM - Crashing (Official Video) ft. Bahari](https://www.youtube.com/watch?v=Q6jnXN_nTlY) — ILLENIUM (0:03:52)
 174. [unitrΔ_Δudio x Krzysztof Krawczyk - Chciałem być 2015](https://www.youtube.com/watch?v=_O6c4xJEyik) — Onionwave (0:03:06)
 175. [KALEO - Way Down We Go (Official Music Video)](https://www.youtube.com/watch?v=0-7IHOXkiV8) — KALEO (0:03:35)
-176. [Breakbot - Baby I'm Yours (feat. Irfane) [Official Video]](https://www.youtube.com/watch?v=6okxuiiHx2w) — Ed Banger Records (0:02:31)
+176. [Breakbot - Baby I'm Yours (feat. Irfane) [Official Video]](https://www.youtube.com/watch?v=6okxuiiHx2w) — Ed Banger Records and Breakbot (0:02:31)
 177. [Tove Lo - Habits (Stay High) - Hippie Sabotage Remix](https://www.youtube.com/watch?v=SYM-RJwSGQ8) — Tove Lo (0:04:24)
 178. [Can We Kiss Forever?](https://www.youtube.com/watch?v=B6xb42pIAD0) — CloudKid (0:03:08)
 179. [Jamal - Peron [Official Music Video]](https://www.youtube.com/watch?v=TiinAVjPyRs) — Miejska Muzyka (0:03:14)
@@ -1912,7 +1922,7 @@
 109. [Mortal Kombat Theme (Still Frozen Drum & Bass Remix)](https://www.youtube.com/watch?v=SGg-lIJXe2U) — StillFrozenDNB (0:03:13)
 110. [Hybrid Minds - Halcyon (feat. Grimm)](https://www.youtube.com/watch?v=S7de4JJVV8A) — MrSuicideSheep (0:05:42)
 111. [Neutralize - Shining Through The Light Ft. Emily Underhill](https://www.youtube.com/watch?v=5MlLza1LcA4) — NeutralizeOfficial (0:05:01)
-112. [Ian Carey Project - Shotcaller (Matrix and Futurebound remix)](https://www.youtube.com/watch?v=8Mtl3foWU8Q) — NaylzDnB (0:04:18)
+112. [Ian Carey Project - Shotcaller (Matrix and Futurebound remix)](https://www.youtube.com/watch?v=8Mtl3foWU8Q) — Stelefant (0:04:18)
 113. [Guru Groove Foundation - Golden Love (Mr. Frenkie Remix)](https://www.youtube.com/watch?v=EQroAon6qbQ) — Mr. Frenkie (0:03:29)
 114. [[Deleted video]](https://www.youtube.com/watch?v=IKFuaExJ-EI) — 
 115. [Smooth - For Good](https://www.youtube.com/watch?v=PeudLhS3Wp8) — Liquicity (0:04:34)
@@ -2208,12 +2218,17 @@
 405. [Freak Out](https://www.youtube.com/watch?v=93p3lVQxR1A) — René LaVice - Topic (0:04:06)
 406. [Trippin'](https://www.youtube.com/watch?v=tyy6moUqxvs) — HighThere - Topic (0:05:30)
 407. [Mean Teeth - Keeping It Dirty (MNDSCP Remix) - (C4C Recordings)](https://www.youtube.com/watch?v=LvoUZZcb3xU) — C4C Recordings (0:05:11)
-408. [Frenchcore 2025 Intense ⚡️ | Techno Hardcore Underground | Drop Épique](https://www.youtube.com/watch?v=DXzVVf6m2z8) — PulseFrenchcore (0:04:57)
+408. [[Private video]](https://www.youtube.com/watch?v=DXzVVf6m2z8) — 
 409. [Sub Focus, Culture Shock & Fragma - Miracle](https://www.youtube.com/watch?v=5HQCs82Q7us) — UKF Drum & Bass (0:03:25)
 410. [Sub Focus, Fireboy DML, Irah - Original Don (Official Music Video)](https://www.youtube.com/watch?v=6-cUGj05OAc) — Sub Focus (0:02:56)
 411. [Fred again.. & Baby Keem - leavemealone](https://www.youtube.com/watch?v=rNv8K8AYGi8) — Fred again . . (0:03:43)
 412. [Spooky Scary Skeletons (Kasger Drum & Bass Remix)](https://www.youtube.com/watch?v=_w5CsNLoST8) — Kasger (0:03:48)
 413. [Marina and the Diamonds - Immortal (MewOne!, Syberian Beast Remix)](https://www.youtube.com/watch?v=6Do-cASPEXo) — SoTwiisT (0:03:41)
+414. [Dimension - DJ Turn It Up (Official Video)](https://www.youtube.com/watch?v=qj-1nprw12E) — Dimension (0:02:49)
+415. [Mr. Ours - Christmas Baddadan](https://www.youtube.com/watch?v=xRKTx1CfqpA) — Mr.Ours (0:02:50)
+416. [Noisia & The Upbeats - Dustup (Mefjus Remix)](https://www.youtube.com/watch?v=JHbdoAicNwE) — UKF Drum & Bass (0:05:45)
+417. [Deep Crisis - Screw Face](https://www.youtube.com/watch?v=pjXAMSgD6Lc) — DEEPROT (0:03:52)
+418. [Krzysztof Krawczyk x Document One - Mój Przyjacielu vs Bad Intentions [69Beats Live Blend]](https://www.youtube.com/watch?v=gfeVtDo9Vdg) — 69Beats (0:04:55)
 
 ## PvP
 
@@ -2229,7 +2244,7 @@
 10. [Aero Chord - Ctrl Alt Destruction [FREE DL]](https://www.youtube.com/watch?v=4CEjay8qCIc) — Trap and Bass (0:03:56)
 11. [Aero Chord - Warrior of the Night](https://www.youtube.com/watch?v=nMt7nMUcQRQ) — Trap and Bass (0:04:15)
 12. [Hard Bass School - narkotik kal](https://www.youtube.com/watch?v=fro6je9L5kg) — Biosioho (0:03:56)
-13. [Remember The Name (Official Video) - Fort Minor](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
+13. [Remember The Name (Official Video) - Fort Minor [4K]](https://www.youtube.com/watch?v=VDvr08sCPOc) — Fort Minor (0:03:49)
 14. [Good Charlotte - The River ft. M. Shadows, Synyster Gates (Official Music Video)](https://www.youtube.com/watch?v=yVm8PjWCvLg) — goodcharlotte (0:03:16)
 15. [BassDoctorMixes ~ Does he look like a BITCH? Dubstep](https://www.youtube.com/watch?v=KjW3z2NyKKs) — BassDoctorsMixes (0:04:12)
 16. [[Breaks] - Noisestorm - Barracuda [Monstercat Release]](https://www.youtube.com/watch?v=KKRRWQq5f5E) — Monstercat Uncaged (0:04:23)
@@ -2355,7 +2370,7 @@
 136. [N O W A V E - DISCRETE](https://www.youtube.com/watch?v=UWZ3o5zfrto) — N O W A V E (0:05:29)
 137. [± Damn Whøre - Insomnia ±](https://www.youtube.com/watch?v=WHwI185I3dQ) — N¡gh†m∆res ∆nd 8Ø8s (0:05:20)
 138. [Spirit Warriors](https://www.youtube.com/watch?v=eUdJosFvO8k) — Wolf and Raven - Topic (0:06:33)
-139. [Gotta Go Fast [FULL ALBUM] - Sonic the Hedgehog COVER MUSIC ALBUM by NateWantsToBattle](https://www.youtube.com/watch?v=tJjURMVgk7s) — Give Heart Records (0:38:09)
+139. [Gotta Go Fast [FULL ALBUM] - Sonic the Hedgehog COVER MUSIC ALBUM by NateWantsToBattle](https://www.youtube.com/watch?v=tJjURMVgk7s) — Give Heart Records and NateWantsToBattle (0:38:09)
 140. [Tenside - Cannibals (They Don't Care) (Zardonic Remix)](https://www.youtube.com/watch?v=_cuRPVIxETQ) — Zardonic (0:04:39)
 141. [ODDKO - Disobey (Zardonic Remix)](https://www.youtube.com/watch?v=TKdXLRVCBks) — Zardonic (0:03:26)
 142. [PRoject OxiD - Homies Still (BigStat & Alex)](https://www.youtube.com/watch?v=k-Ll6zPHFNI) — PRoject OxiD (0:06:27)
@@ -2431,11 +2446,17 @@
 212. [Freak Out](https://www.youtube.com/watch?v=93p3lVQxR1A) — René LaVice - Topic (0:04:06)
 213. [Trippin'](https://www.youtube.com/watch?v=tyy6moUqxvs) — HighThere - Topic (0:05:30)
 214. [Mean Teeth - Keeping It Dirty (MNDSCP Remix) - (C4C Recordings)](https://www.youtube.com/watch?v=LvoUZZcb3xU) — C4C Recordings (0:05:11)
-215. [Frenchcore 2025 Intense ⚡️ | Techno Hardcore Underground | Drop Épique](https://www.youtube.com/watch?v=DXzVVf6m2z8) — PulseFrenchcore (0:04:57)
+215. [[Private video]](https://www.youtube.com/watch?v=DXzVVf6m2z8) — 
 216. [Shipping Up To Boston (MOONLGHT Flip)](https://www.youtube.com/watch?v=5QJiPHJerCc) — MOONLGHT (0:02:13)
 217. [Creeds - Push Up (Lyrics) | Tiktok](https://www.youtube.com/watch?v=mNrzmpA8JU4) — The Vibe Guide (0:02:19)
 218. [Sub Focus, Fireboy DML, Irah - Original Don (Official Music Video)](https://www.youtube.com/watch?v=6-cUGj05OAc) — Sub Focus (0:02:56)
 219. [Rude Lard - Spooky](https://www.youtube.com/watch?v=cR0HwQBpFLA) — Rude Lard (0:04:04)
+220. [Nu Metal Legends Vol. 4 – Korn, System of Down, Slipknot, Limp Bizkit Inspired (2000s Rock AI Remix)](https://www.youtube.com/watch?v=k-8OaaEAraw) — Metaflow and Mixology (0:54:14)
+221. [Noisia & The Upbeats - Dustup (Mefjus Remix)](https://www.youtube.com/watch?v=JHbdoAicNwE) — UKF Drum & Bass (0:05:45)
+222. [Deep Crisis - Screw Face](https://www.youtube.com/watch?v=pjXAMSgD6Lc) — DEEPROT (0:03:52)
+223. [Krzysztof Krawczyk x Document One - Mój Przyjacielu vs Bad Intentions [69Beats Live Blend]](https://www.youtube.com/watch?v=gfeVtDo9Vdg) — 69Beats (0:04:55)
+224. [Excision & Sullivan King - Wake Up](https://www.youtube.com/watch?v=Pq0ejJ2afEs) — DubstepGutter (0:05:44)
+225. [Delta Heavy x Everyone You Know - 'Anarchy' (Shock One Remix)](https://www.youtube.com/watch?v=kaSTfpnsPmQ) — RAM Records (0:04:37)
 
 ## NightDriving
 
